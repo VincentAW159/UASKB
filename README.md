@@ -4,5 +4,3 @@
 2.Nicholas Billy - 26416038
 
 3.Gregorius Hans - C14180051
-
-4.Michael Agustinus - C14180145
